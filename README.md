@@ -1,1 +1,0 @@
-# projetoMaratonaExplorer---1
